@@ -67,6 +67,9 @@ https://x.com/sandyaphd/status/1733153206673268787?s=61
 https://www.linkedin.com/posts/george-kontoudis-b2680462_motion-planning-active-learning-and-autonomy-activity-7139096981229985792-FOwP?utm_source=share&utm_medium=member_desktop
 
 https://x.com/yuedongcs/status/1733598336400375828?s=61
+
+https://x.com/ZhongingAlong/status/1735294465017794587?s=20
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
