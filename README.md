@@ -82,6 +82,7 @@ https://www.linkedin.com/posts/berkustun_postdoctoral-fellowships-in-responsible
 
 https://www.linkedin.com/posts/david-m-rosen_join-activity-7138726360604127232-lHXr?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/osorioc_carolina-osorio-activity-7141391758013198336-3noO?utm_source=share&utm_medium=member_desktop
 
 # Staj
 
