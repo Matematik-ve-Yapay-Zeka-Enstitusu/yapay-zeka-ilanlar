@@ -72,6 +72,8 @@ https://x.com/ZhongingAlong/status/1735294465017794587?s=20
 
 https://www.linkedin.com/jobs/view/3786208715/?refId=3s8XDgxIIxLEFNcwyU7aBg%3D%3D&trackingId=3s8XDgxIIxLEFNcwyU7aBg%3D%3D
 
+https://fleuret.org/francois/hiring.html
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
