@@ -88,6 +88,8 @@ https://www.linkedin.com/posts/david-m-rosen_join-activity-7138726360604127232-l
 
 https://www.linkedin.com/posts/osorioc_carolina-osorio-activity-7141391758013198336-3noO?utm_source=share&utm_medium=member_desktop
 
+https://x.com/ian__manchester/status/1686587674331918336?s=61
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
