@@ -90,6 +90,8 @@ https://www.linkedin.com/posts/osorioc_carolina-osorio-activity-7141391758013198
 
 https://x.com/ian__manchester/status/1686587674331918336?s=61
 
+https://www.linkedin.com/feed/update/urn:li:activity:7145419048166600704/
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
