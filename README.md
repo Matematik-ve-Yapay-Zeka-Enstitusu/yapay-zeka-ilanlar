@@ -74,6 +74,8 @@ https://www.linkedin.com/jobs/view/3786208715/?refId=3s8XDgxIIxLEFNcwyU7aBg%3D%3
 
 https://fleuret.org/francois/hiring.html
 
+https://x.com/davidskrueger/status/1732923027174699220?s=61
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
