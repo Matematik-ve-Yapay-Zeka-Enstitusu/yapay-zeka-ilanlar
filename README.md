@@ -94,6 +94,8 @@ https://x.com/ian__manchester/status/1686587674331918336?s=61
 
 https://www.linkedin.com/feed/update/urn:li:activity:7145419048166600704/
 
+https://x.com/SethInternet/status/1739715096979415086?s=20
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
@@ -125,6 +127,11 @@ https://www.linkedin.com/posts/rgeirhos_hiring-video-diffusion-activity-71375209
 https://x.com/astonzhangaz/status/1731698624902402281?s=61
 
 https://www.linkedin.com/posts/cheng-zhang-a772942a_search-jobs-microsoft-careers-activity-7138840789190615040-4zzn/?utm_source=share&utm_medium=member_ios
+
+https://x.com/gan_chuang/status/1740465043123134642?s=20
+
+https://x.com/ambuj123/status/1739898209496072377?s=20
+
 
 # İş İlanları
 
