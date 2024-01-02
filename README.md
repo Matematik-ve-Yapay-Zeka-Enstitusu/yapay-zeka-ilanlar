@@ -78,9 +78,12 @@ https://x.com/davidskrueger/status/1732923027174699220?s=61
 
 # Doktora Sonrası
 
-https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
+https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop 
+(15.01.2024) 
+(security and privacy-enhancing techniques for federated machine learning)
 
 https://www.linkedin.com/posts/michael-yip-43913421_hello-friends-i-have-an-opening-for-a-activity-7135689001411248128-5arQ?utm_source=share&utm_medium=member_desktop
+(image-guided surgical robotics)
 
 https://www.linkedin.com/posts/matthew-thorpe-036346a2_department-of-statistics-activity-7137330380520476672-CKAD?utm_source=share&utm_medium=member_ios
 
@@ -146,3 +149,10 @@ https://x.com/Bosch_AI/status/1731961639581434145?s=20
 https://www.linkedin.com/posts/zhou-zhang-996b9865_ml-crop-models-postdoc-position-ugcPost-7138580239013576704-NsIr?utm_source=share&utm_medium=member_desktop
 
 https://github.com/TheStageAI/TorchIntegral
+
+
+| Bağlantı 1       | Bağlantı 2       |
+| --------------- | --------------- |
+| [Bağlantı 1 Adı](link1)  | [Bağlantı 2 Adı](link2)  |
+| [Bağlantı 1 Açıklama](link1) | [Bağlantı 2 Açıklama](link2) |
+
