@@ -98,6 +98,8 @@ https://x.com/SethInternet/status/1739715096979415086?s=20
 
 https://www.linkedin.com/posts/chrisandersson_i-am-currently-looking-for-a-postdoc-to-join-activity-7147862621789057024-0xkz?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/pierpaolo-vivo-b671a07_postdoctoral-position-available-in-complex-activity-7133382134911651840-YjV-?utm_source=share&utm_medium=member_desktop
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
