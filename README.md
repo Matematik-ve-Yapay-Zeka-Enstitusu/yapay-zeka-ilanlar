@@ -134,6 +134,8 @@ https://x.com/gan_chuang/status/1740465043123134642?s=20
 
 https://x.com/ambuj123/status/1739898209496072377?s=20
 
+https://x.com/pranavrajpurkar/status/1742452415700377703?s=20
+
 
 # İş İlanları
 
