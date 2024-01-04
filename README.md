@@ -152,3 +152,5 @@ https://www.linkedin.com/posts/zhou-zhang-996b9865_ml-crop-models-postdoc-positi
 https://github.com/TheStageAI/TorchIntegral
 
 https://www.linkedin.com/posts/nima-tajbakhsh-b5454376_senior-deep-learning-algorithm-engineer-activity-7148385360626995200-pfN5?utm_source=share&utm_medium=member_desktop
+
+https://www.linkedin.com/posts/arunsubramaniyan_intel-and-digitalbridge-launch-articul8-activity-7148391490984030208-1zPS?utm_source=share&utm_medium=member_desktop
