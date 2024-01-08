@@ -158,3 +158,5 @@ https://www.linkedin.com/posts/nima-tajbakhsh-b5454376_senior-deep-learning-algo
 https://www.linkedin.com/posts/arunsubramaniyan_intel-and-digitalbridge-launch-articul8-activity-7148391490984030208-1zPS?utm_source=share&utm_medium=member_desktop
 
 https://www.linkedin.com/posts/openmined_openmined-building-ai-governance-infrastructure-activity-7148890122288046080-pvn6?utm_source=share&utm_medium=member_desktop
+
+https://jobs.lever.co/Anthropic/436ca148-6440-460f-b2a2-3334d9b142a5
