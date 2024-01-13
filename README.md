@@ -104,6 +104,8 @@ https://www.linkedin.com/posts/pierpaolo-vivo-b671a07_postdoctoral-position-avai
 
 https://www.linkedin.com/posts/lacey-mallory-0736953_postdoctoral-scientist-supply-chain-optimization-activity-7150172636147351553-s7My?utm_source=share&utm_medium=member_desktop
 
+https://x.com/TrackingActions/status/1746199879200764253?s=20
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
