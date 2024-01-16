@@ -106,6 +106,8 @@ https://www.linkedin.com/posts/lacey-mallory-0736953_postdoctoral-scientist-supp
 
 https://x.com/TrackingActions/status/1746199879200764253?s=20
 
+https://www.linkedin.com/posts/nikolay-atanasov-b034b27_tilos-postdoctoral-scholar-activity-7152763448676765697-3aoh?utm_source=share&utm_medium=member_desktop
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
