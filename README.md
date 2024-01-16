@@ -146,6 +146,7 @@ https://x.com/ambuj123/status/1739898209496072377?s=20
 
 https://x.com/pranavrajpurkar/status/1742452415700377703?s=20
 
+https://x.com/lena_voita/status/1746879757575176263?s=20
 
 # İş İlanları
 
