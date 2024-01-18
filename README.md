@@ -108,6 +108,8 @@ https://x.com/TrackingActions/status/1746199879200764253?s=20
 
 https://www.linkedin.com/posts/nikolay-atanasov-b034b27_tilos-postdoctoral-scholar-activity-7152763448676765697-3aoh?utm_source=share&utm_medium=member_desktop
 
+https://x.com/ninamiolane/status/1747693618062889205?s=20
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
