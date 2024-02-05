@@ -84,6 +84,8 @@ https://www.linkedin.com/posts/amirali-darvishzadeh_our-ml-team-at-instacart-is-
 
 https://www.linkedin.com/posts/brian-sheil-34940a28_job-opportunities-activity-7158417926583136256-XcAi?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/marcel-worring_two-phd-positions-in-ai-and-computational-activity-7160218028247302145-1Zpy?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
