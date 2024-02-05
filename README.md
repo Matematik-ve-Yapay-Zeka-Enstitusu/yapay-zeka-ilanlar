@@ -80,6 +80,10 @@ https://x.com/gio_ramponi/status/1745099495560429582?s=20
 
 https://x.com/saramagliacane/status/1750901002507563174?s=20
 
+https://www.linkedin.com/posts/amirali-darvishzadeh_our-ml-team-at-instacart-is-actively-recruiting-activity-7160109085810397185-uVmm?utm_source=share&utm_medium=member_desktop
+
+https://www.linkedin.com/posts/brian-sheil-34940a28_job-opportunities-activity-7158417926583136256-XcAi?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
