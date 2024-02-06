@@ -86,6 +86,8 @@ https://www.linkedin.com/posts/brian-sheil-34940a28_job-opportunities-activity-7
 
 https://www.linkedin.com/posts/marcel-worring_two-phd-positions-in-ai-and-computational-activity-7160218028247302145-1Zpy?utm_source=share&utm_medium=member_desktop
 
+https://x.com/orvieto_antonio/status/1754494212769292430?s=20
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
