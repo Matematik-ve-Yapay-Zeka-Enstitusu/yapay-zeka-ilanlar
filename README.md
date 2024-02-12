@@ -124,6 +124,8 @@ https://www.linkedin.com/posts/nikolay-atanasov-b034b27_tilos-postdoctoral-schol
 
 https://x.com/ninamiolane/status/1747693618062889205?s=20
 
+https://x.com/yalidux/status/1757037821376762088?s=20
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
