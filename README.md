@@ -90,6 +90,8 @@ https://x.com/orvieto_antonio/status/1754494212769292430?s=20
 
 https://www.linkedin.com/posts/hazarharmouch_phd-position-in-data-quality-forusing-ai-based-activity-7162808153594703873-P3Y0?utm_source=share&utm_medium=member_desktop
 
+https://x.com/today_itself/status/1756928197294449144?s=20
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
