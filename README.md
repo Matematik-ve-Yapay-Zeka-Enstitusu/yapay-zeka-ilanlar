@@ -126,6 +126,8 @@ https://x.com/ninamiolane/status/1747693618062889205?s=20
 
 https://x.com/yalidux/status/1757037821376762088?s=20
 
+https://www.linkedin.com/posts/einarj_dstrain-dscience-centre-for-computational-activity-7158141059464626176-jxWB?utm_source=share&utm_medium=member_desktop
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
