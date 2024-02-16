@@ -132,6 +132,8 @@ https://x.com/yalidux/status/1757037821376762088?s=20
 
 https://www.linkedin.com/posts/einarj_dstrain-dscience-centre-for-computational-activity-7158141059464626176-jxWB?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/g%C3%BCnter-klambauer-1b73293a_weve-got-job-openings-2-postdoc-positions-activity-7163825804567605249-TdlY?utm_source=share&utm_medium=member_desktop
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
