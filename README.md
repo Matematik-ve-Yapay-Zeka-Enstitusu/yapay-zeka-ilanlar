@@ -96,6 +96,8 @@ https://x.com/PontiEdoardo/status/1757682451885748580?s=20
 
 https://www.linkedin.com/posts/bilgekucukatasoy_erc-ercstg-adaptor-activity-7163812637871431680-2fFr?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/james-henderson-3b68346b_careers-activity-7171479933293084672-WJ-h?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
