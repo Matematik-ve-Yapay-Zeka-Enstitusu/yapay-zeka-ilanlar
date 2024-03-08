@@ -98,6 +98,8 @@ https://www.linkedin.com/posts/bilgekucukatasoy_erc-ercstg-adaptor-activity-7163
 
 https://www.linkedin.com/posts/james-henderson-3b68346b_careers-activity-7171479933293084672-WJ-h?utm_source=share&utm_medium=member_desktop
 
+https://x.com/visionviktor/status/1765765652541808840?s=20
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
