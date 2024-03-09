@@ -182,6 +182,8 @@ https://x.com/lena_voita/status/1746879757575176263?s=20
 
 https://www.linkedin.com/posts/naomijwhite_hiring-activity-7160284920764841984-lmlf?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/xiang-song-488a633a_we-are-looking-for-applied-scientist-interns-activity-7171939515979165696-sctr?utm_source=share&utm_medium=member_desktop
+
 # İş İlanları
 
 https://jobs.apple.com/en-us/details/200525608/aiml-ml-engineer-mlr
