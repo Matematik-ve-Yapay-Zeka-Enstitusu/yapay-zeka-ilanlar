@@ -140,6 +140,8 @@ https://www.linkedin.com/posts/g%C3%BCnter-klambauer-1b73293a_weve-got-job-openi
 
 https://x.com/MilindTambe_AI/status/1764384577487794439?s=20
 
+https://www.linkedin.com/posts/saveriobolognani_heinrich-nax-and-i-want-to-investigate-the-activity-7173249074299695104-MwYB?utm_source=share&utm_medium=member_desktop
+
 # Staj
 
 https://x.com/luca_zapp/status/1728088480679350441?s=61
