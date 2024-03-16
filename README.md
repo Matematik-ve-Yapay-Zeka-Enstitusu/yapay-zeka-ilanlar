@@ -212,6 +212,8 @@ https://x.com/yaringal/status/1749896650271723664?s=20
 
 https://www.linkedin.com/posts/shekoofehazizi_google-forms-sign-in-activity-7151063795170181120-6ZIu?utm_source=share&utm_medium=member_desktop
 
+https://x.com/jerryjliu0/status/1768659405833412992?s=20
+
 https://www.linkedin.com/posts/zboukhers_at-fraunhofer-fit-we-are-looking-for-a-activity-7151928719819894785-4tlv?utm_source=share&utm_medium=member_desktop
 
 https://nvidia.wd5.myworkdayjobs.com/NVIDIAExternalCareerSite/job/Poland-Remote/Deep-Learning-Software-Engineer---Generative-AI_JR1976653-1
