@@ -100,6 +100,8 @@ https://www.linkedin.com/posts/james-henderson-3b68346b_careers-activity-7171479
 
 https://x.com/visionviktor/status/1765765652541808840?s=20
 
+https://www.linkedin.com/posts/maliheh-izadi_hiring-phd-phdposition-ugcPost-7175485310200377344-jPqw?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
