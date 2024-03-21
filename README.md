@@ -102,6 +102,8 @@ https://x.com/visionviktor/status/1765765652541808840?s=20
 
 https://www.linkedin.com/posts/maliheh-izadi_hiring-phd-phdposition-ugcPost-7175485310200377344-jPqw?utm_source=share&utm_medium=member_desktop
 
+https://www.linkedin.com/posts/daniel-polani-445875b_phd-studentships-2024-activity-7176255973810933761-Fk0A?utm_source=share&utm_medium=member_desktop
+
 # Doktora Sonrası
 
 https://www.linkedin.com/posts/andrehteixeira_postdoctoral-position-in-machine-learning-activity-7136299232390524930-zXfk?utm_source=share&utm_medium=member_desktop
